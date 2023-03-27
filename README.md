@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CandaceCJ
+- 👋 Hi, I’m Candace
 - 👀 I’m interested in supporting your project with my mad organizational skills
 - 💞️ I’m looking to collaborate on projects involving art, design, web3 or something I've never done! 
 - 📫 How to reach me ... candacejanee@gmail.com 
